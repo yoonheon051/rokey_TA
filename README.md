@@ -1,1 +1,2 @@
-https://www.notion.so/2eb730ff8f7e80c6b3bdf3d5c0e79a55?source=copy_link
+Doosan Rokey Boot Camp 6기 (2025.09.08 ~ 2026.03.16)
+Doosan Rokey Boot Camp 보조강사 (2026 .03.27 ~ 현재)
